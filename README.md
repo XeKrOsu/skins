@@ -124,7 +124,7 @@ ________________________________________________________________________________
 
 ## [Happy Memories - Yuru Camp](https://skins.osuck.net/index.php?newsid=1566)
 
-![Happy Memories](https://skins.osuck.net/uploads/posts/2020-08/1596550561_3.jpg)
+![Happy Memories](https://skimg.osuck.net/dd6c6b33065345674d1346ad102fdae1.webp)
 
 ## [PinkChoco](https://www.reddit.com/r/OsuSkins/comments/j16ec4/pinkchoco_169_43_sdhd/)
 
