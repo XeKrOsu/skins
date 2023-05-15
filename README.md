@@ -56,9 +56,13 @@ Here are the skins I made and some skins I use.
 ![JBN Skin 9.1 - taiko](https://i.imgur.com/sUNdcEw.jpg)
 ![JBN Skin 9.1 - ctb](https://i.imgur.com/BL70dKh.jpg)
 
-## 🌐 [JBN Skin X](https://didiermichon.s-ul.eu/ArTRuiXP)
+## [JBN Skin X](https://didiermichon.s-ul.eu/ArTRuiXP)
 
 ![JBN Skin X](https://i.imgur.com/tAukigd.jpg)
+
+## [JBN Skin X-1](https://didiermichon.s-ul.eu/BC4goN71)
+
+![JBN Skin X-1](https://i.imgur.com/TI55oX4.jpeg)
 
 ## [osu! Train a Grande Vitesse](https://didiermichon.s-ul.eu/BQZLpPy2)
 
@@ -75,6 +79,10 @@ Here are the skins I made and some skins I use.
 ## [JBN Skin X -Old-](https://didiermichon.s-ul.eu/afl7I2HZ)
 
 ![version de 2008 ou 2014 du JBN Skin X](https://i.imgur.com/lkGTKBi.jpeg)
+
+## [OSU! SUPER MARIO WORLD GALAXY SUPRANOVA CREME GLACEE]
+
+???
 
 ___________________________________________________________________________________________________________________________
 
