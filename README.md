@@ -1,4 +1,4 @@
-Last update: 27/05/2023 (DD/MM/YYYY)
+Last update: 06/08/2023 (DD/MM/YYYY)
 
 # osu! Skins by XeKr (and some other skins I use)
 
@@ -83,6 +83,10 @@ Here are the skins I made and some skins I use.
 ## [OSU! SUPER MARIO WORLD GALAXY SUPRANOVA CREME GLACEE]
 
 ???
+
+## 🌐 [JBN Skin X ⁌ Pro ⁍](https://didiermichon.s-ul.eu/PWHtIbjM)
+
+![Version ultime du JBN Skin X](https://i.imgur.com/q42p2Mr.jpeg)
 
 ___________________________________________________________________________________________________________________________
 
