@@ -68,7 +68,7 @@ Here are the skins I made and some skins I use.
 
 ![osu! Train a Grande Vitesse](https://i.imgur.com/ZfNL2Wx.jpeg)
 
-## [JBN Skin Ϟ (WiP)](https://didiermichon.s-ul.eu/wV83JeNg)
+## [JBN Skin Ϟ](https://didiermichon.s-ul.eu/ZVhwnsYC)
 
 ![JBN Skin Ϟ](https://i.imgur.com/QyonMjz.png)
 
