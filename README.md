@@ -1,4 +1,4 @@
-Last update: 06/08/2023 (DD/MM/YYYY)
+Last update: 07/08/2023 (DD/MM/YYYY)
 
 # osu! Skins by XeKr (and some other skins I use)
 
@@ -84,7 +84,7 @@ Here are the skins I made and some skins I use.
 
 ???
 
-## 🌐 [JBN Skin X ⁌ Pro ⁍](https://didiermichon.s-ul.eu/PWHtIbjM)
+## 🌐 [JBN Skin X ⁌ Pro ⁍](https://didiermichon.s-ul.eu/JzgJ4Y5K)
 
 ![Version ultime du JBN Skin X](https://i.imgur.com/q42p2Mr.jpeg)
 
