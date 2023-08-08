@@ -84,7 +84,7 @@ Here are the skins I made and some skins I use.
 
 ???
 
-## 🌐 [JBN Skin X ⁌ Pro ⁍](https://didiermichon.s-ul.eu/JzgJ4Y5K)
+## 🌐 [JBN Skin X ⁌ Pro ⁍](https://didiermichon.s-ul.eu/u3ctl7hc)
 
 ![Version ultime du JBN Skin X](https://i.imgur.com/q42p2Mr.jpeg)
 
