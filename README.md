@@ -162,6 +162,6 @@ ________________________________________________________________________________
 
 ![Kamio Misuzu](https://i.imgur.com/o0J2n44.png)
 
-## 🌐 [Spazza17 [Fumo Bacon]](https://drive.google.com/file/d/1UFAdS-EbO4GiPQgZS95fcA3fQfq6WYE9/view?usp=sharing)
+## [Spazza17 [Fumo Bacon]](https://drive.google.com/file/d/1UFAdS-EbO4GiPQgZS95fcA3fQfq6WYE9/view?usp=sharing)
 
 ![Fumo Bacon](https://user-images.githubusercontent.com/71230537/147388325-a1f14b4b-9cb8-48d5-86c9-8fe816fea308.jpg)
