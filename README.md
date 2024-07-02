@@ -1,6 +1,6 @@
-Last update: 07/08/2023 (DD/MM/YYYY)
+Last update: 02/07/2024 (DD/MM/YYYY)
 
-# osu! Skins by XeKr (and some other skins I use)
+# osu! Skins by XeKr/byo (and some other skins I use)
 
 Here are the skins I made and some skins I use.
 
